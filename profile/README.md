@@ -8,7 +8,7 @@
 
 ### 👉👉 Link Mua Sản Phẩm [Ở Đây](https://s.net.vn/phan-phu-innisfree)
 
-### 👉👉 Ghé Thăm [Halomi Store](https://s.net.vn/phan-phu-innisfree) Để Biếtb Thêm Thông Tin Chi Tiết
+### 👉👉 Ghé Thăm [Halomi Store](https://s.net.vn/phan-phu-innisfree) Để Biết Thêm Thông Tin Chi Tiết
 ---
 
 ## <H2> Thông Tin Sản Phẩm
