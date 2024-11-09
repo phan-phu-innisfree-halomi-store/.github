@@ -16,7 +16,7 @@
 - **Tên sản phẩm**: Phấn Phủ Bột Kiềm Dầu Innisfree No Sebum Mineral Powder
 - **Dung tích**: 5g
 - **Giá tham khảo**: Khoảng 139,000 VNĐ
-- **Nơi bán**: Các cửa hàng mỹ phẩm và trang web như Innisfree Việt Nam, Thế Giới Skinfood, Guardian Việt Nam.
+- **Nơi bán**: Các cửa hàng mỹ phẩm và trang web như Halomi Store, Innisfree Việt Nam,...
 
 ---
 
