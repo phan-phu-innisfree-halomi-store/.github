@@ -56,7 +56,7 @@ Sử dụng phấn phủ Innisfree đúng cách giúp bạn tận dụng tối �
 1. **Bước cuối trong quy trình chăm sóc da**: Sau khi hoàn tất các bước trang điểm, lấy một lượng nhỏ phấn và dặm nhẹ lên vùng da dễ tiết dầu như vùng chữ T.
 2. **Dặm lại khi cần**: Có thể mang theo và dặm lại phấn phủ vào những thời điểm cần thiết trong ngày để duy trì làn da mịn màng, không bóng dầu.
 
-## [Link Mua Sản Phẩm](https://s.net.vn/phan-phu-innisfree)
+### 👉👉 [Link Mua Sản Phẩm](https://s.net.vn/phan-phu-innisfree)
 ---
 
 ## <H2> Review Phấn Phủ Innisfree Dạng Bột
