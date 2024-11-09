@@ -6,9 +6,9 @@
 
 **Phấn phủ kiềm dầu Innisfree dạng bột** là sản phẩm trang điểm không thể thiếu cho những cô nàng yêu thích vẻ đẹp tự nhiên. Với chiết xuất từ thiên nhiên và khoáng chất từ đảo Jeju, phấn phủ này giúp kiểm soát dầu thừa và duy trì lớp trang điểm tươi mới suốt cả ngày. Không chỉ là sản phẩm trang điểm đơn thuần, phấn phủ Innisfree dạng bột còn phù hợp với mọi loại da và mọi tông da, tạo lớp phủ thoáng khí, nhẹ nhàng.
 
-### Link Mua Sản Phẩm [Ở Đây](https://s.net.vn/phan-phu-innisfree)
+### 👉👉 Link Mua Sản Phẩm [Ở Đây](https://s.net.vn/phan-phu-innisfree)
 
-### Ghé Thăm [Halomi Store](https://s.net.vn/phan-phu-innisfree) Để Biếtb Thêm Thông Tin Chi Tiết
+### 👉👉 Ghé Thăm [Halomi Store](https://s.net.vn/phan-phu-innisfree) Để Biếtb Thêm Thông Tin Chi Tiết
 ---
 
 ## <H2> Thông Tin Sản Phẩm
