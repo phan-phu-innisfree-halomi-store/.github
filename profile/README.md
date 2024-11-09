@@ -1,5 +1,7 @@
 # Phấn Phủ Innisfree Dạng Bột: Lựa Chọn Hoàn Hảo Cho Làn Da Mịn Màng Tự Nhiên
 
+![halomi-store-phan-phu-innisfree](https://github.com/user-attachments/assets/a8124fd5-53be-48fc-9236-e015c697efb2)
+
 ## <H2> Phấn Phủ Innisfree Dạng Bột Là Gì?
 
 **Phấn phủ kiềm dầu Innisfree dạng bột** là sản phẩm trang điểm không thể thiếu cho những cô nàng yêu thích vẻ đẹp tự nhiên. Với chiết xuất từ thiên nhiên và khoáng chất từ đảo Jeju, phấn phủ này giúp kiểm soát dầu thừa và duy trì lớp trang điểm tươi mới suốt cả ngày. Không chỉ là sản phẩm trang điểm đơn thuần, phấn phủ Innisfree dạng bột còn phù hợp với mọi loại da và mọi tông da, tạo lớp phủ thoáng khí, nhẹ nhàng.
